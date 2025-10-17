@@ -1,0 +1,1 @@
+# antikoruption.kz
